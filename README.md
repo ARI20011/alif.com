@@ -1,2 +1,0 @@
-# alif.com
-selamat datang
